@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **zohaibmansoor.ali@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BMn8G8HX5BJ2grISko6rHAYvBAtYRVB_/view?usp=sharing](https://drive.google.com/file/d/1BMn8G8HX5BJ2grISko6rHAYvBAtYRVB_/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BMn8G8HX5BJ2grISko6rHAYvBAtYRVB_/view?usp=sharing](https://drive.google.com/file/d/1rz4JXhfwFDkj4MPFGU56Yxty6moJWN0V/view?usp=sharing)
 
 - ⚡ Fun fact **I am Funny😅**
 
